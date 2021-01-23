@@ -1,0 +1,1 @@
+Rice flakes, onion, green chilli, mustrad seeds, oil, ground nuts, coriander, turmeric, salt, graded coconut.
